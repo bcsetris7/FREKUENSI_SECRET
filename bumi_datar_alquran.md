@@ -38,3 +38,21 @@
 - Dan Kami jadikan malam dan siang sebagai dua tanda (kebesaran Kami), kemudian Kami hapuskan tanda malam dan Kami jadikan tanda siang itu terang benderang, agar kamu (dapat) mencari karunia dari Tuhanmu, dan agar kamu mengetahui bilangan tahun dan perhitungan (waktu). Dan segala sesuatu telah Kami terangkan dengan jelas.
 
 
+# IBRAHIM AYAT 33
+- surat ibrahim ayat 33. “dan dialah yang telah menciptakan malam dan siang, matahari dan bulan. Namun semua yang terkait dengan informasi matahari itu sangat dikaitkan dengan pandangan subjektif manusia.
+
+# AR RAHMAN AYAT 5,6,7,8
+
+# BUMI MEMILIKI ATAP
+- Dan Kami menjadikan langit sebagai atap yang terpelihara, namun mereka tetap berpaling dari tanda-tanda (kebesaran Allah) itu (matahari, bulan, angin, awan, dan lain-lain). (QS. [21] Al-Anbiya' : 32)
+
+# BUMI AIR SALING TERPISAH
+- Q.S Ar-Rahman (55) ayat : 19-22, serta Q.S Al-Furqan (25) ayat 53″ Dan membiarkan dua lautan mengalir yang keduanya kemudian bertemu, antara keduanya ada batas yang tidak dilampaui oleh masing-masing, maka nikmat Alloh manakah yang kamu dustakan. Dari keduanya keluar mutiara dan marjan  (Q.S Ar-Rahman (55) ayat : 19-22)
+“Dan Dialah Alloh yang membiarkan dua laut yang mengalir (berdampingan) yang ini tawar lagi segar dan yang lain asin lagi pahit: dan Dia jadikan antara keduanya dinding dan batas yang menghalangi (Q.S Al-Furqan (25) ayat 5)
+
+# KISAH ISRA MIR'AJ 
+- ketika nabi muhammad saw mau turun kebawah (bumi) dia melihat di bumi ada gunung yang sangat besar di tengah (kutub utara) dan bewarna hijau nambrud, dan nabi  muhammad saw bertanya kepada jibril apakah itu lalu jibril menjawab itulah "JABAL QAF" ketika matahari bersinar mengenai gunung tersebut maka langit berwarna biru
+ karena matahari itu pendek
+
+# HADIST
+- cincin (bumi) seperti di lemparkan ke padang pasir (hamparan) hr. muslim

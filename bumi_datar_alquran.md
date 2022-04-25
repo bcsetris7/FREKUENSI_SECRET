@@ -1,3 +1,6 @@
+# AL-ARAF AYAT 25
+- 25. Allah berfirman: Di bumi itu kamu hidup dan di bumi itu kamu mati, dan dari bumi itu (pula) kamu akan dibangkitkan.
+- 
 # AL BAQARAH AYAT 29
 - Dalam surat 2 Al Baqarah ayat 29 disebutkan, bahwa langit yang mempunyai tujuh lapis memiliki fungsi yang berbeda.
 

@@ -22,3 +22,19 @@
 - Dan Yang menurunkan air dari langit menurut kadar (yang diperlukan) lalu Kami hidupkan dengan air itu negeri yang mati, seperti itulah kamu akan dikeluarkan (dari dalam kubur). (Q.S. Az-Zukhruf : 11)
 - Tidakkah kamu melihat bahwasanya Allah menurunkan hujan dari langit lalu Kami hasilkan dengan hujan itu buah-buahan yang beraneka macam jenisnya. Dan di antara gunung-gunung itu ada garis-garis putih dan merah yang beraneka macam warnanya dan ada (pula) yang hitam pekat. (Q.S. Faathir : 27)
 - Dia menciptakan langit tanpa tiang yang kamu melihatnya dan Dia meletakkan gunung-gunung (di permukaan) bumi supaya bumi itu tidak menggoyangkan kamu; dan memperkembang biakkan padanya segala macam jenis binatang. Dan Kami turunkan air hujan dari langit, lalu Kami tumbuhkan padanya segala macam tumbuh-tumbuhan yang baik. (Q.S. Luqman : 10)
+
+
+# LANGIT TAK DAPAT DITEMBUS 
+# AR RAHMAN AYAT 33
+- 33. Wahai golongan jin dan manusia! Jika kamu sanggup menembus (melintasi) penjuru langit dan bumi, maka tembuslah. Kamu tidak akan mampu menembusnya kecuali dengan kekuatan (dari Allah).
+
+
+# BUMI HAMPARAN
+# AL BAQARAH AYAT 22
+- (Dialah) yang menjadikan bumi sebagai hamparan bagimu dan langit sebagai atap, dan Dialah yang menurunkan air (hujan) dari langit, lalu Dia hasilkan dengan (hujan) itu buah-buahan sebagai rezeki untukmu. Karena itu janganlah kamu mengadakan tandingan-tandingan bagi Allah, padahal kamu mengetahui.
+
+# SIANG MALAM 
+# AL ISRA AYAT 12
+- Dan Kami jadikan malam dan siang sebagai dua tanda (kebesaran Kami), kemudian Kami hapuskan tanda malam dan Kami jadikan tanda siang itu terang benderang, agar kamu (dapat) mencari karunia dari Tuhanmu, dan agar kamu mengetahui bilangan tahun dan perhitungan (waktu). Dan segala sesuatu telah Kami terangkan dengan jelas.
+
+
